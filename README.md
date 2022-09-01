@@ -1,6 +1,5 @@
-# ds202-sandbox
-Just trying out git in a group
-
+# Ode to an awesome advisor
+We are trying to write this together as a group
 
 
 ## Happies
