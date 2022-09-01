@@ -7,6 +7,7 @@ We are trying to write this together as a group
 - seeing everybody on campus is fun
 - getting to work part-time for the company I intered for
 - Seeing my roommates
+- having coffee in the morning in my special mug
 
 ## Crappies
 
