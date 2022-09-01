@@ -5,6 +5,7 @@ We are trying to write this together as a group
 ## Happies
 
 - seeing everybody on campus is fun
+- im not failing any classes yet
 - getting to work part-time for the company I interned for
 - getting boba
 - seeing all my friends on campus
@@ -16,6 +17,7 @@ We are trying to write this together as a group
 
 - being in a classroom at 8 is ... tough
 - missing two class periods for sleep
+- I have not gotten enough sleep
 - living next to a train
 - having an 8 am and an 8 pm on class on the same day
 - knowing classes are only getting busier
