@@ -15,6 +15,7 @@ We are trying to write this together as a group
 - seeing my friends
 - Seeing my roommates
 - having coffee in the morning in my special mug
+- still some coffee left in my mug
 
 
 ## Crappies
