@@ -5,7 +5,6 @@ We are trying to write this together as a group
 ## Happies
 
 - seeing everybody on campus is fun
-
 - getting to work part-time for the company I intered for
 - having a schedule for my day
 - im not failing any classes yet
@@ -15,8 +14,8 @@ We are trying to write this together as a group
 - seeing my friends
 - Seeing my roommates
 - having coffee in the morning in my special mug
+- Seeing my friends
 - still some coffee left in my mug
-
 
 ## Crappies
 
@@ -28,4 +27,5 @@ We are trying to write this together as a group
 - having an 8 am and an 8 pm on class on the same day
 - knowing classes are only getting busier
 - Have to start doing homework
+- Struggling with classes already 
 
