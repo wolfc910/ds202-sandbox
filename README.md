@@ -17,6 +17,7 @@ We are trying to write this together as a group
 - Seeing my friends
 - still some coffee left in my mug
 - seeing all my friends
+- seeing friends I haven't seen in a while
 - Football season is about to begin
 
 ## Crappies
