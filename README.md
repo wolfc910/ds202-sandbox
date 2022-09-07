@@ -16,6 +16,7 @@ We are trying to write this together as a group
 - having coffee in the morning in my special mug
 - Seeing my friends
 - still some coffee left in my mug
+- seeing all my friends
 - seeing friends I haven't seen in a while
 - Football season is about to begin
 
@@ -29,6 +30,6 @@ We are trying to write this together as a group
 - having an 8 am and an 8 pm on class on the same day
 - knowing classes are only getting busier
 - Have to start doing homework
+- the hot weather
 - Lots of work is starting to get added on
 - Struggling with classes already 
-
