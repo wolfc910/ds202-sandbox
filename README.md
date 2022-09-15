@@ -1,4 +1,4 @@
-# Ode to an awesome advisor
+l# Ode to an awesome advisor
 We are trying to write this together as a group
 
 
@@ -19,7 +19,8 @@ We are trying to write this together as a group
 - seeing all my friends
 - seeing friends I haven't seen in a while
 - Football season is about to begin
-- I've been enjoying my classes, and it was nice seeing friends I hadn't seen in a while
+- I've been enjoying my classes
+- it was nice seeing friends I hadn't seen in a while
 
 ## Crappies
 
