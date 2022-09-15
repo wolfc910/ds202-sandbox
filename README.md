@@ -19,6 +19,7 @@ We are trying to write this together as a group
 - seeing all my friends
 - seeing friends I haven't seen in a while
 - Football season is about to begin
+- I've been enjoying my classes, and it was nice seeing friends I hadn't seen in a while
 
 ## Crappies
 
@@ -33,3 +34,4 @@ We are trying to write this together as a group
 - the hot weather
 - Lots of work is starting to get added on
 - Struggling with classes already 
+- caught covid
