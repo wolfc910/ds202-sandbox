@@ -1,6 +1,5 @@
 l# Ode to an awesome advisor
 We are trying to write this together as a group
-For Fall 2023
 
 
 ## Happies
