@@ -8,4 +8,4 @@ We are trying to write this together as a group
 
 ## Crappies
 
-- being in a classroom at 8 is ... tough
+- Digging out a car from the snow in the parking lot at 10 Fahrenheit is hard
